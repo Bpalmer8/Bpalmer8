@@ -6,7 +6,7 @@
 Here are some ideas to get you started:
 
 
-- 🌱 I’m currently learning ... informatics and IT
+- 🌱 I’m currently learning ... Informatics and IT
 
 
 - 💬 Ask me about ... my military exp.
