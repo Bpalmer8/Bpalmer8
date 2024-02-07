@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 
 - 💬 Ask me about ... my military exp.
 - 📫 How to reach me: ... bpalmer47@ivytech.edu
--
+
